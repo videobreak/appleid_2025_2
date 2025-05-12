@@ -1,0 +1,2 @@
+# appleid_2025_2
+2025年最新免费美区港区日区appleid共享，账号注册教程 小火箭账号Shadowrocket
